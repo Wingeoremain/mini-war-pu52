@@ -1,4 +1,4 @@
-#  
+#  Sem banimento plants vs brainrots script é o melhor plants vs brainrots script com acesso a servidor privado e invisibilidade. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
